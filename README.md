@@ -1,1 +1,1 @@
-# pollo-a-la-naranja2
+El pollo a la naranja es una comida típica de Asia.  En este caso, se trata de unas pechugas de pollo cocinadas junto a una salsa hecha a base de zumo de naranja. Se puede acompañar de un arroz blanco. Es muy fácil y rápido de hacer.  Lo tendrás listo en cuestión de 30 minutos. O menos. 
